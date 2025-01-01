@@ -16,6 +16,8 @@ HELPIHADTORESTARTTHISWHOLETHING
 
 IDONTSHIPCHARACTERSPLS *but im fine with whatever u ship, as long as itsnotproblematicandsutff*
 
+### ALSO IM NOT A FICTKIN!! JUST A NORMAL PERSON WHO KINS CHARACTERS
+
 ***
 
 ## MAIN INTERESTS
