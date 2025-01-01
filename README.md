@@ -5,13 +5,14 @@ call me **kwazii** or **star** or something ![image_description](https://64.medi
 
 ***
 
-- im socially awkward soz
+- im socially awkward soz lolololl
 
 HELPIHADTORESTARTTHISWHOLETHING
 
  - im sort of freaky sumtimes so tell me when to tone down the <sup>freakiness</sup> !!!!
 
-- that is a joke im sorry
+
+ that is a joke im sorry
 
 IDONTSHIPCHARACTERSPLS *but im fine with whatever u ship, as long as itsnotproblematicandsutff*
 
@@ -29,6 +30,7 @@ IDONTSHIPCHARACTERSPLS *but im fine with whatever u ship, as long as itsnotprobl
 - FNAF (jumpscares)
 - FNF(beepboopbop)
 - HANNIBAL NBC (love this series)
+
 `etc. . `
 
 ***
