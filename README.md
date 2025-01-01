@@ -1,12 +1,15 @@
 ### PONYTOWN USE ONLY!
 
-call me **kwazii** or **star** or something ![image_description](https://64.media.tumblr.com/fdaaac9f6984d97b678959339a7dabbd/64ef976b6d7170d4-d0/s75x75_c1/fc690f2cfed7f109f70df800db5987a1ffecd615.gifv) `minor and half filo gng`
+
+call me **kwazii** or **star** or something ![image_description](https://64.media.tumblr.com/fdaaac9f6984d97b678959339a7dabbd/64ef976b6d7170d4-d0/s75x75_c1/fc690f2cfed7f109f70df800db5987a1ffecd615.gifv) `minor + half filo gng`
+
+***
 
 - im socially awkward soz
 
-`HELPIHAVETORESTARTTHISWHOLETHING`
+HELPIHADTORESTARTTHISWHOLETHING
 
-- im sort of freaky sumtimes so tell me when to tone down the <sup>freakiness</sup> !!!!
+ - im sort of freaky sumtimes so tell me when to tone down the <sup>freakiness</sup> !!!!
 
 - that is a joke im sorry
 
@@ -14,13 +17,13 @@ IDONTSHIPCHARACTERSPLS *but im fine with whatever u ship, as long as itsnotprobl
 
 ***
 
-# MAIN INTERESTS
+## MAIN INTERESTS
 
 - SONIC THE HEDGEHOG
 - SIG GAYMES
 - THE STANLEY PARABLE(UD)
 
-# SIDE INTERESTS (chicks)
+### SIDE INTERESTS (chicks)
 
 - OCTONAUTS(grew up with them)
 - FNAF (jumpscares)
