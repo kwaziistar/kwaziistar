@@ -6,18 +6,18 @@ call me **kwazii** or **star** or something ![image_description](https://64.medi
 
 `HELPIHAVETORESTARTTHISWHOLETHING`
 
-- im sort of freaky sumtimes so tell me when to tone down the freakiness!!!!
+- im sort of freaky sumtimes so tell me when to tone down the <sup>superscript</sup> freakiness !!!!
 
 - that is a joke im sorry
 
-***IDONTSHIPCHARACTERSPLS***
+IDONTSHIPCHARACTERSPLS *but im fine with whatever u ship, as long as itsnotproblematicandsutff*
 
 ***
 
 # MAIN INTERESTS
 
 - SONIC THE HEDGEHOG
-- SIG GAYMES(every single one.)
+- SIG GAYMES
 - THE STANLEY PARABLE(UD)
 
 # SIDE INTERESTS (chicks)
@@ -30,7 +30,7 @@ call me **kwazii** or **star** or something ![image_description](https://64.medi
 
 ***
 
-- `this game is so mentally ill lol`
+- this game is so mentally ill lol
 
 #![image_description](https://64.media.tumblr.com/67c94628578bd0aead5c93842571363e/64ef976b6d7170d4-12/s75x75_c1/cbac7eb0c56fbec86fe45f9be242a74bcfd6611c.gifv)
 
