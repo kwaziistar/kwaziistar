@@ -6,7 +6,7 @@ call me **kwazii** or **star** or something ![image_description](https://64.medi
 
 `HELPIHAVETORESTARTTHISWHOLETHING`
 
-- im sort of freaky sumtimes so tell me when to tone down the <sup>superscript</sup> freakiness !!!!
+- im sort of freaky sumtimes so tell me when to tone down the <sup>freakiness</sup> !!!!
 
 - that is a joke im sorry
 
