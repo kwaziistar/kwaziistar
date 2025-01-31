@@ -5,6 +5,8 @@ call me **kwazii** or **star** or something ![image_description](https://64.medi
 
 ***
 
+I don't share personal stuff about myself
+
 - im socially awkward soz lolololl
 
 HELPIHADTORESTARTTHISWHOLETHING
@@ -24,15 +26,15 @@ IDONTSHIPCHARACTERSPLS *but im fine with whatever u ship, as long as itsnotprobl
 
 - SONIC THE HEDGEHOG
 - SIG GAYMES
-- THE STANLEY PARABLE(UD)
 
 ### SIDE INTERESTS (chicks)
 
+- THE STANLEY PARABLE(UD)
+- HANNIBAL NBC (love this series)
 - OCTONAUTS(grew up with them)
+- MOUTHWASHING
 - FNAF (jumpscares)
 - FNF(beepboopbop)
-- HANNIBAL NBC (love this series)
-
 `etc. . `
 
 ***
@@ -46,6 +48,7 @@ IDONTSHIPCHARACTERSPLS *but im fine with whatever u ship, as long as itsnotprobl
 
 - **MY ONLINE FAMILY**(Alex, Michael, etc...)
 
+and awesome people in my friend list
 ***
 
 # SEE U NEVER
