@@ -46,7 +46,7 @@ IDONTSHIPCHARACTERSPLS *but im fine with whatever u ship, as long as itsnotprobl
 
 ### awesome mangoes!
 
-- **MY ONLINE FAMILY**(Alex, Michael, etc...)
+- **MY ONLINE FAMILY**
 
 and awesome people in my friend list
 ***
